@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MitchaelUrv
+- 👋 Hi, I’m Michael
 - 📫 How to reach me : MikhailUrv@yandex.ru , +7 923 618 27 07
 
 <!---
